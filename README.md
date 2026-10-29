@@ -1,0 +1,2 @@
+# kamome-inn
+detective story
